@@ -1,1 +1,0 @@
-# seguridad-en-le-uso-de-energia
